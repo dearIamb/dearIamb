@@ -16,13 +16,13 @@
 
 ![](https://files.catbox.moe/4flo2d.gif)
 
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝚙𝚛𝚗𝚜](https://pronouns.cc/@tinfoiil) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://pronouns.cc/@tinfoiil) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝚊𝚝𝚊](https://iknowuraddress.atabook.org/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂](https://iknowuraddress.atabook.org/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝚜𝚙](https://kiiiin.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒔𝒑](https://kiiiin.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝚗𝚎𝚠 𝚜𝚙](https://dacryphobia.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒏𝒆𝒘 𝒔𝒑](https://dacryphobia.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 ![](https://files.catbox.moe/wzh8bi.gif)
 
