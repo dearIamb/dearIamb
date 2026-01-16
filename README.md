@@ -24,6 +24,6 @@ $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒔𝒑](https://kiiii
 
 $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒏𝒆𝒘 𝒔𝒑](https://dacryphobia.straw.page/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-![](https://files.catbox.moe/wzh8bi.gif)
+![](https://files.catbox.moe/b540ut.gif)
 
 ![](https://files.catbox.moe/5xw2wy.png)
