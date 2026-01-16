@@ -26,4 +26,4 @@ $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒏𝒆𝒘 𝒔𝒑](
 
 ![](https://files.catbox.moe/ihf4b2.gif)
 
-![](https://files.catbox.moe/5xw2wy.png)
+![](https://files.catbox.moe/tywfjn.png)
