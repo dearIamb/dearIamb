@@ -2,11 +2,11 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightgrey&left_text=SEEN-THIS-ANGEL?)
 
-![](https://files.catbox.moe/7onf60.png)
+![](https://files.catbox.moe/g5yich.png)
 
 # $\texttt{\color{#909090} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ }$
 
-![](https://files.catbox.moe/5thveu.png)
+![](https://files.catbox.moe/2n16su.png)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=100&color=C3C3C3&vcenter=true&width=435&lines=im+your+coquette!;dont+you+forget!)](https://git.io/typing-svg)
 
@@ -31,4 +31,4 @@ $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔 𝒘�
 
 
 
-![](https://files.catbox.moe/tywfjn.png)
+![](https://files.catbox.moe/vnvfl6.png)
