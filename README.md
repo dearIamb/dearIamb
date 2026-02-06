@@ -16,7 +16,7 @@
 
 ![](https://files.catbox.moe/4flo2d.gif)
 
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https://pronouns.cc/@tinfoiil) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https://pronouns.cc/@euphoriic) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂](https://iknowuraddress.atabook.org/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
