@@ -20,10 +20,6 @@ $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https
 
 $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂](https://iknowuraddress.atabook.org/) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒔𝒑]() $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
-
-$\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒏𝒆𝒘 𝒔𝒑]() $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
-
 $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔 𝒘𝒊𝒑](https://guns.lol/teary_eyedloser) $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 $\texttt{\color{#909090}   strawpage editor is currently buggy asf, so i wont be putting it on rn.  }$
