@@ -25,7 +25,7 @@ $\texttt{\color{#909090}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔 𝒘�
 $\texttt{\color{#909090}   strawpage editor is currently buggy asf, so i wont be putting it on rn.  }$
 
 
-![](https://files.catbox.moe/ihf4b2.gif)
+![](https://files.catbox.moe/4gdyfa.png)
 
 
 
