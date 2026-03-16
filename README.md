@@ -8,7 +8,7 @@
 
 ![](https://files.catbox.moe/kwiq8b.png)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=700&pause=9&color=C3C3C3&vcenter=true&width=435&lines=true+love,+oh!;true+love,+oh!;true+love,+oh!;true+love,+oh!;true+love,+oh!;true+love,+oh!)](https://git.io/typing-svg)[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3000&pause=90&color=C3C3C3&vcenter=true&width=435&lines=wherever+i+go+^_^)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=100&color=C3C3C3&vcenter=true&width=435&lines=i+want+things+to+be+beautiful.;forgot+things+could+be+beautiful.;i+forgot+it+was+an+option.;i+had+given+up+on+hope.)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/g1b8w8.gifv)
 
