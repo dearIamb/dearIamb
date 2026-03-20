@@ -6,7 +6,7 @@
 
 # $\texttt{\color{#909090} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ }$
 
-![](https://files.catbox.moe/wfdvr7.png)
+![](https://files.catbox.moe/ysjygl.png)
 
 $\texttt{\color{#6F0909}(art not mine, creds to owner.)}$
 
