@@ -4,13 +4,13 @@
 
 ![](https://files.catbox.moe/jnpc4l.png)
 
-# $\texttt{\color{#909090} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ }$
+# $\texttt{\color{#D90300} ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔ }$
 
 ![](https://files.catbox.moe/ysjygl.png)
 
 $\texttt{\color{#6F0909}(art not mine, creds to owner.)}$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=100&color=C3C3C3&vcenter=true&width=435&lines=i+want+things+to+be+beautiful.;forgot+things+could+be+beautiful.;i+forgot+it+was+an+option.;i+had+given+up+on+hope.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=100&color=D90300&vcenter=true&width=435&lines=i+want+things+to+be+beautiful.;forgot+things+could+be+beautiful.;i+forgot+it+was+an+option.;i+had+given+up+on+hope.)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/g1b8w8.gifv)
 
