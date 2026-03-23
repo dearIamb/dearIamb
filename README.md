@@ -24,7 +24,7 @@ $\texttt{\color{#A10E04}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂](https://i
 
 $\texttt{\color{#80000E}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔 𝒘𝒊𝒑](https://guns.lol/teary_eyedloser) $\texttt{\color{#80000E}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#80000E}   heads up !: before you check anything else its best to visit my prns page , all of my info is back there ! !  }$
+$\texttt{\color{#80000E}   heads up !: before you check anything else its best to visit my prns page , all of my info is there ! !  }$
 
 
 
