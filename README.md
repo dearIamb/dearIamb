@@ -4,7 +4,7 @@
 
 ![](https://files.catbox.moe/jnpc4l.png)
 
-# $\texttt{\color{#D90300} REDOING THS EHOLE READMR YESYES BE PATIENT}$
+# $\texttt{\color{#D90300} REDOING THS EHOLE READMR YESYES }$
 
 ![](https://files.catbox.moe/ysjygl.png)
 
