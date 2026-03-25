@@ -8,7 +8,7 @@
 
 $\texttt{\color{#6F0909}something will go here yes}$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=100&color=D90300&vcenter=true&width=435&lines=i+want+things+to+be+beautiful.;forgot+things+could+be+beautiful.;i+forgot+it+was+an+option.;i+had+given+up+on+hope.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=100&color=D90300&vcenter=true&width=435&lines=im+in+a+nightmare,;please+dont+wake+me+up;a+blurry+face+through+a-;train+window+is+crying)](https://git.io/typing-svg)
 
 
 $\texttt{\color{#C31600}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https://pronouns.cc/@euphoriic) $\texttt{\color{#C31600}   ‧₊˚♪ 𝄞₊˚⊹  }$
