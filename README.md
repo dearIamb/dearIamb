@@ -3,10 +3,10 @@
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightgrey&left_text=redoing)
 
 
-# $\texttt{\color{#D90300} REDOING THS EHOLE READMR YESYES }$
+# $\texttt{\color{#D90300} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ }$
 
 
-$\texttt{\color{#6F0909}(art not mine, creds to owner.)}$
+$\texttt{\color{#6F0909}something will go here yes}$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=100&color=D90300&vcenter=true&width=435&lines=i+want+things+to+be+beautiful.;forgot+things+could+be+beautiful.;i+forgot+it+was+an+option.;i+had+given+up+on+hope.)](https://git.io/typing-svg)
 
