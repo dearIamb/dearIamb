@@ -13,6 +13,7 @@ $\texttt{\color{#c85689}ill prolly fix that image but for now its like that yeaj
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=200&color=d296b0&vcenter=true&width=435&lines=bingo,+bingo,+baby!;i+love+you,+aint+that+crazy?;i+want+you,+i+want+you,;over+again..)](https://git.io/typing-svg)
 
+![17746003483481909455641932482594](https://github.com/user-attachments/assets/83e6ace5-226c-4cce-995e-59d9ad1e4376)
 
 $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https://pronouns.cc/@euphoriic) $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
