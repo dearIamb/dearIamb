@@ -23,7 +23,7 @@ $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔 𝒘�
 $\texttt{\color{#B35392}  request me on sp im bored }$
 
 
-
+# $$\texttt{\color{#a85188} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
 
 
 
