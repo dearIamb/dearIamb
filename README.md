@@ -3,7 +3,7 @@
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightpink&left_text=losers/j)
 
 
-# $\texttt{\color{#a85188} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ }$
+# $$\texttt{\color{#a85188} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
 
 ![](https://files.catbox.moe/7q693f.png)
 
