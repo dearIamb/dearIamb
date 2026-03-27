@@ -1,6 +1,6 @@
 <div align="center">
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=maroon&left_text=redoing)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=maroon&left_text=blood+stains)
 
 
 # $\texttt{\color{#D90300} ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨ـ }$
