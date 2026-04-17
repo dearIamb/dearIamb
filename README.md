@@ -10,7 +10,7 @@
 
 $\texttt{\color{#c85689}ill prolly fix that image but for now its like that yeaj}$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=50&color=d296b0&vcenter=true&width=435&lines=extra+extra;read+all+about+it;malcom's+in+his+feelings;and+he+cant+get+out+of+it)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=500&color=d296b0&vcenter=true&width=435&lines=extra+extra;read+all+about+it;malcom's+in+his+feelings;and+he+cant+get+out+of+it)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/zqq3az.gif)
 
