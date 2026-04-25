@@ -18,7 +18,7 @@ $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https
 
 $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂](https://iknowuraddress.atabook.org/) $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔 𝒘𝒊𝒑](https://guns.lol/teary_eyedloser) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔](https://guns.lol/teary_eyedloser) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 $\texttt{\color{#B35392}  actively working on prns card!! }$
 
