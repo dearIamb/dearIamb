@@ -14,7 +14,7 @@ $\texttt{\color{#c85689}ill prolly fix that image but for now its like that yeaj
 
 ![](https://files.catbox.moe/zqq3az.gif)
 
-$\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https://pronouns.cc/@heavysleepurr) $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒑𝒓𝒏𝒔](https://pronouns.cc/@heavysleepurrr) $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂](https://iknowuraddress.atabook.org/) $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
