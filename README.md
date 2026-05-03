@@ -20,7 +20,7 @@ $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂](https://i
 
 $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔](https://guns.lol/teary_eyedloser) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#B35392}  honorable mention: 3 days. }$
+$\texttt{\color{#B35392}  mlem }$
 
 
 # $$\texttt{\color{#a85188} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
