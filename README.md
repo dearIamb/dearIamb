@@ -6,7 +6,7 @@
 
 ![](https://files.catbox.moe/7q693f.png)
 
-![](https://files.catbox.moe/k8tav7.png)
+![](https://files.catbox.moe/gipm90.png)
 
 $\texttt{\color{#c85689}ill prolly fix that image but for now its like that yeaj}$
 
