@@ -1,6 +1,6 @@
 <div align="center">
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightpink&left_text=fine+shyts+heheh)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=pink&left_text=witnesses)
 
 # $$\texttt{\color{#a85188} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
 
