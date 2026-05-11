@@ -22,7 +22,7 @@ $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂𝒃𝒐�
 
 $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/teary_eyedloser) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#B35392}  mlem }$
+$\texttt{\color{#B35392}  with every mistake i make, i am trying to become a better person. if anything i had done has offended you, i sincerely apologize truly. thank you. -kin }$
 
 ![](https://64.media.tumblr.com/2d494b6a9492cc73ca1bcdd718d2b577/fb954531cdb91a4f-56/s100x200/d9941f7c59d506f14e8aae5d122d914c67bc0206.pnj)
 
