@@ -20,7 +20,7 @@ $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒊𝒏𝒇𝒐 / 𝒑
 
 $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/) $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/teary_eyedloser) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/franlamb) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 $\texttt{\color{#B35392}  mrrrrp. }$
 
