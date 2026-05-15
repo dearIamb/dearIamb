@@ -28,7 +28,7 @@ $\texttt{\color{#B35392}  mrrrrp. }$
 
 $\texttt{\color{#B32e6e} fictkin alt accounts !! vv }$
 
-[꒰ woody bfdi alt ꒱](github.com/woody-bfdi-irl)  ⠀[꒰ robur block tales alt ꒱](robur-bt)
+[woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
 
 ![](https://files.catbox.moe/777r4e.png)
 
