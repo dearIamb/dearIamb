@@ -16,15 +16,19 @@ $\texttt{\color{#c85689} you can always come home . }$ [♡](github.com/seraphla
 
 $\texttt{\color{#B35392} ⊹₊˚‧︵‿₊୨ }$ ![](https://files.catbox.moe/zqq3az.gif) $\texttt{\color{#B35392} ୧₊‿︵‧˚₊⊹ }$
 
-$\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒊𝒏𝒇𝒐 / 𝒑𝒓𝒏𝒔 𝒄𝒂𝒓𝒅](https://pronouns.cc/@heavysleepurrr) $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#5A002F}   ˖᯽ ݁˖  }$ [𝒊𝒏𝒇𝒐 / 𝒑𝒓𝒏𝒔 𝒄𝒂𝒓𝒅](https://pronouns.cc/@heavysleepurrr) $\texttt{\color{#5A002F}   ˖᯽ ݁˖  }$
 
-$\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/) $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#C0477D}   ˖᯽ ݁˖  }$ [𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/) $\texttt{\color{#C0477D}   ˖᯽ ݁˖  }$
 
-$\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍 (wip)](https://guns.lol/franlamb) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#E58DAA}   ˖᯽ ݁˖  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍 (wip)](https://guns.lol/franlamb) $\texttt{\color{#E58DAA}   ˖᯽ ݁˖  }$
 
 $\texttt{\color{#B35392}  mrrrrp. }$
 
 ![](https://64.media.tumblr.com/2d494b6a9492cc73ca1bcdd718d2b577/fb954531cdb91a4f-56/s100x200/d9941f7c59d506f14e8aae5d122d914c67bc0206.pnj)
+
+$\texttt{\color{#B32e6e} fictkin alt accounts !! vv }$
+
+[꒰ woody bfdi alt ꒱](github.com/woody-bfdi-irl)  ⠀[꒰ robur block tales alt ꒱](robur-bt)
 
 ![](https://files.catbox.moe/777r4e.png)
 
