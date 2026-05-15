@@ -8,9 +8,9 @@
 
 ![](https://files.catbox.moe/u2i0jo.png)
 
-$\texttt{\color{#c85689}↓ message from me personally, read!!!}$
+$\texttt{\color{#c85689} you can always come home . }$ [♡](github.com/seraphlazer)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=300&color=d296b0&vcenter=true&width=435&lines=with+every+mistake+i+make;im+trying+to+be+a+better+person.;if+anything+i+did;has+offended+you;i+am+deeply+sorry.;thank+you.;-note+from+kin+himself)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=300&color=d296b0&vcenter=true&width=435&lines=love+us;together;an+eater;i+need+heeerrr)](https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/bkg8vc.png)
 
@@ -20,7 +20,7 @@ $\texttt{\color{#4B294A}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒊𝒏𝒇𝒐 / 𝒑
 
 $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/) $\texttt{\color{#D05395}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
-$\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/franlamb) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
+$\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍 (wip)](https://guns.lol/franlamb) $\texttt{\color{#E79CBA}   ‧₊˚♪ 𝄞₊˚⊹  }$
 
 $\texttt{\color{#B35392}  mrrrrp. }$
 
