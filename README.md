@@ -8,7 +8,7 @@
 
 ![](https://files.catbox.moe/u2i0jo.png)
 
-$\texttt{\color{#c85689} you can always come home . }$ [♡](github.com/seraphlazer)
+$\texttt{\color{#c85689} you can always come home . }$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=300&color=d296b0&vcenter=true&width=435&lines=love+us;together;an+eater;i+need+heeerrr)](https://git.io/typing-svg)
 
