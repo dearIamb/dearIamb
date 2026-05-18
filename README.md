@@ -27,9 +27,9 @@ $\texttt{\color{#B35392}  mrrrrp. }$
 
 ![](https://64.media.tumblr.com/2d494b6a9492cc73ca1bcdd718d2b577/fb954531cdb91a4f-56/s100x200/d9941f7c59d506f14e8aae5d122d914c67bc0206.pnj)
 
-$\texttt{\color{#B32e6e} fictkin alt accounts !! vv }$
+$\texttt{\color{#B32e6e} fictkin ⠀ accounts ⠀ !! vv }$
 
 [woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
 
 
-# $$\texttt{\color{#a85188} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
+
