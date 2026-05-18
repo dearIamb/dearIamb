@@ -1,10 +1,9 @@
 <div align="center">
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=pink&left_text=witnesses)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=pink&left_text=cool+people)
 
 # $$\texttt{\color{#a85188} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
 
-![](https://files.catbox.moe/z426mz.png)
 
 ![](https://files.catbox.moe/u2i0jo.png)
 
@@ -32,6 +31,5 @@ $\texttt{\color{#B32e6e} fictkin alt accounts !! vv }$
 
 [woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
 
-![](https://files.catbox.moe/777r4e.png)
 
 # $$\texttt{\color{#a85188} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
