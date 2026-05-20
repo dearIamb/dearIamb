@@ -21,7 +21,7 @@ $\texttt{\color{#5A002F}   ˖᯽ ݁˖  }$ [𝒊𝒏𝒇𝒐 / 𝒑𝒓𝒏𝒔 �
 
 $\texttt{\color{#C0477D}   ˖᯽ ݁˖  }$ [𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/) $\texttt{\color{#C0477D}   ˖᯽ ݁˖  }$
 
-$\texttt{\color{#E58DAA}   ˖᯽ ݁˖  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍 (wip)](https://guns.lol/franlamb) $\texttt{\color{#E58DAA}   ˖᯽ ݁˖  }$
+$\texttt{\color{#E58DAA}   ˖᯽ ݁˖  }$ [𝒈𝒖𝒏𝒔.𝒍𝒐𝒍 (wip)](https://guns.lol/thefrayedlamb) $\texttt{\color{#E58DAA}   ˖᯽ ݁˖  }$
 
 $\texttt{\color{#B35392}  mrrrrp. }$
 
