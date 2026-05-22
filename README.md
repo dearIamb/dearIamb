@@ -13,7 +13,9 @@ $\texttt{\color{#A02E30}   that⠀ ⠀you ⠀ ⠀could ⠀⠀ ⠀understand ⠀ 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=300&color=DD9E87&vcenter=true&width=435&lines=love+us;together;an+eater;i+need+heeerrr)](https://git.io/typing-svg)
 
-wip
+[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowyouraddress.atabook.org)⠀ ⠀ ⠀ [𝒊𝒏𝒇𝒐 / 𝒑𝒓𝒏𝒔](https://pronouns.cc/@heavysleepurrr)⠀ ⠀ ⠀ ⠀[𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/@thefrayedlamb)
+
+$\texttt{\color{#DD9E87} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ }$
 
 $\texttt{\color{#D47471} fictkin ⠀ accounts ⠀ !! vv }$
 
