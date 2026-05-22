@@ -7,9 +7,9 @@
 
 ![](https://files.catbox.moe/io5sqn.png)
 
-$\texttt{\color{#EED6B2} i⠀ ⠀ ⠀wanted ⠀ to⠀ ⠀be ⠀ the⠀⠀ ⠀one⠀ ⠀, }$
+$\texttt{\color{#EED6B2} i⠀ ⠀wanted ⠀ to⠀ ⠀be ⠀ the⠀⠀ ⠀one⠀ ⠀, }$
 
-$\texttt{\color{#A02E30}   that⠀ ⠀you ⠀ ⠀could ⠀⠀ ⠀understand ⠀ .⠀ ⠀⠀ }$
+$\texttt{\color{#A02E30}  ⠀ ⠀ that⠀ ⠀you ⠀ ⠀could ⠀⠀ ⠀understand ⠀ .⠀ ⠀⠀ }$
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=10&color=DD9E87&vcenter=true&width=435&lines=AAAJFWNSJIFBW;JAUENSKFOSN;UDKAOSOWLSDN;FUUUUCL;JSNWKAOSUEN)](https://git.io/typing-svg)
 
