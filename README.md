@@ -21,5 +21,6 @@ $\texttt{\color{#D47471} fictkin ⠀ accounts ⠀ !! vv }$
 
 [woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
 
+![](https://files.catbox.moe/c6e1p2.jpg)
 
-
+me & my loser love btw hi @seraphlazer
