@@ -23,4 +23,4 @@ $\texttt{\color{#D47471} fictkin ⠀ accounts ⠀ !! vv }$
 
 ![](https://files.catbox.moe/c6e1p2.jpg)
 
-me & my loser love btw hi @seraphlazer
+me & my loser love btw hi [@seraphlazer](https://github.com/seraphlazer)
