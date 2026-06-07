@@ -4,6 +4,7 @@
 
 # $$\texttt{\color{#9A2D2E} 𓎢𓎠𓎟𓎠𓎠𓎟𓎠𓎡 }$$
 
+$\texttt{\color{#D47471} i <3 u too star xp  }$
 
 ![](https://files.catbox.moe/io5sqn.png)
 
