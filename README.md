@@ -6,7 +6,7 @@
 
 $\texttt{\color{#F6B882} <3 star xp  }$
 
-![](https://files.catbox.moe/4vibwi.png)
+![](https://files.catbox.moe/3bh1qg.png)
 
 $\texttt{\color{#FEF8D7} i⠀ ⠀wanted ⠀ to⠀ ⠀be ⠀ the⠀⠀ ⠀one⠀ ⠀, }$
 
