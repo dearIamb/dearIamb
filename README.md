@@ -14,7 +14,7 @@ $\texttt{\color{#FEC87F}  ⠀ ⠀ that⠀ ⠀you ⠀ ⠀could ⠀⠀ ⠀understa
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1999&pause=10&color=D85146&center=true&width=435&lines=𝐰𝐡𝐨𝐬+𝐠𝐨𝐧𝐧𝐚+𝐤𝐢𝐬𝐬;𝐭𝐡𝐞+𝐛𝐫𝐨𝐰𝐧+𝐡𝐚𝐢𝐫𝐞𝐝+𝐠𝐢𝐫𝐥𝐬?;𝐰𝐡𝐨𝐬+𝐠𝐨𝐧𝐧𝐚;𝐰𝐢𝐩𝐞+𝐚𝐰𝐚𝐲+𝐭𝐡𝐞𝐢𝐫+𝐭𝐞𝐚𝐫𝐬?;𝐚𝐧𝐝+𝐰𝐡𝐚𝐭+𝐚𝐛𝐨𝐮𝐭+𝐭𝐡𝐞;𝐛𝐥𝐚𝐜𝐤+𝐡𝐚𝐢𝐫𝐞𝐝+𝐠𝐢𝐫𝐥𝐬?;𝐰𝐡𝐨𝐬+𝐠𝐨𝐧𝐧𝐚+𝐰𝐡𝐢𝐬𝐩𝐞𝐫;𝐟𝐢𝐥𝐭𝐡𝐲+𝐭𝐡𝐢𝐧𝐠𝐬+𝐢𝐧𝐭𝐨+𝐭𝐡𝐞𝐢𝐫+𝐞𝐚𝐫𝐬?)](https://git.io/typing-svg)
 
-[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/)⠀ ⠀ ⠀ [𝒊𝒏𝒇𝒐 / 𝒑𝒓𝒏𝒔](https://pronouns.cc/@heavysleepurrr)⠀ ⠀ ⠀ ⠀[𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/thefrayedlamb)⠀ ⠀ ⠀ ⠀[𝒓𝒆𝒏𝒕𝒓𝒚 (𝑾𝑰𝑷)](https://rentry.co/woodsterr)
+[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/)⠀ ⠀ ⠀ [𝒊𝒏𝒇𝒐 / 𝒑𝒓𝒏𝒔](https://pronouns.cc/@heavysleepurrr)⠀ ⠀ ⠀ ⠀[𝒈𝒖𝒏𝒔.𝒍𝒐𝒍](https://guns.lol/thefrayedlamb)⠀ ⠀ ⠀ ⠀[𝒓𝒆𝒏𝒕𝒓𝒚 (𝑾𝑰𝑷)](https://rentry.co/wooody)
 
 $\texttt{\color{#F5BB88} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ }$
 
