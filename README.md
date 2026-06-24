@@ -14,6 +14,8 @@ $\texttt{\color{#7C6DAE} art cr: @hahaguffawchuckleamalus / migor on pinterest }
 
 $\texttt{\color{#7C6DAE} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ }$
 
+![](https://files.catbox.moe/4wdehk.gif)
+
 $\texttt{\color{#C4D5D5} fictkin accounts !!! vv }$
 
 [woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
