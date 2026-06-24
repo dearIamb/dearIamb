@@ -20,6 +20,6 @@ $\texttt{\color{#C4D5D5} fictkin accounts !!! vv }$
 
 [woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
 
-![](https://files.catbox.moe/c6e1p2.jpg)
+<img src="https://files.catbox.moe/c6e1p2.jpg" width="300" height="270">
 
 me & my loser love btw hi [@seraphlazer](https://github.com/seraphlazer)
