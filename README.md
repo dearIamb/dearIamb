@@ -2,6 +2,8 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightblue&left_text=cool+people)
 
+love u too star
+
 <img src="https://files.catbox.moe/z33s2d.png" width="500" height="500">
 
 $\texttt{\color{#7C6DAE} art cr: @hahaguffawchuckleamalus / migor on pinterest }$
