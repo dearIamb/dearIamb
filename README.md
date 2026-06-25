@@ -2,7 +2,7 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightblue&left_text=cool+people)
 
-love u too star
+$\texttt{\color{#B8CFCF} love u too star }$
 
 <img src="https://files.catbox.moe/z33s2d.png" width="500" height="500">
 
@@ -23,5 +23,3 @@ $\texttt{\color{#C4D5D5} fictkin accounts !!! vv }$
 [woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
 
 <img src="https://files.catbox.moe/c6e1p2.jpg" width="300" height="270">
-
-me & my loser love btw hi [@seraphlazer](https://github.com/seraphlazer)
