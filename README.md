@@ -12,7 +12,7 @@ $\texttt{\color{#7C6DAE} art cr: @hahaguffawchuckleamalus / migor on pinterest }
 
 # $\texttt{\color{#B8CFCF} ·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙ }$
 
-[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/)⠀ ⠀ ⠀ [𝒃𝒍𝒖𝒆𝒔𝒌𝒚](https://bsky.app/profile/kinsiebrah.bsky.social)⠀ ⠀ ⠀ ⠀[𝒓𝒆𝒏𝒕𝒓𝒚 (𝑾𝑰𝑷)](https://rentry.co/wooody)
+[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/)⠀ ⠀ ⠀ [𝒃𝒍𝒖𝒆𝒔𝒌𝒚](https://bsky.app/profile/kinsiebrah.bsky.social)⠀ ⠀ ⠀ ⠀[𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/wooody)
 
 $\texttt{\color{#7C6DAE} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ }$
 
