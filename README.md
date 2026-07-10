@@ -2,7 +2,7 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightblue&left_text=cool+people)
 
-$\texttt{\color{#B8CFCF} losing hope atm, dissasociating }$
+$\texttt{\color{#B8CFCF} trine socialize again! :D }$
 
 <img src="https://files.catbox.moe/z33s2d.png" width="500" height="500">
 
