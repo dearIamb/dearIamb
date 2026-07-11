@@ -20,6 +20,4 @@ $\texttt{\color{#7C6DAE} ✦•┈๑⋅⋯ ⋯⋅๑┈•✦ }$
 
 $\texttt{\color{#C4D5D5} fictkin accounts !!! vv }$
 
-[woody bfdi alt](https://github.com/woody-bfdi-irl)  ⠀[robur blocktales alt](https://github.com/robur-bt)
-
-<img src="https://files.catbox.moe/c6e1p2.jpg" width="300" height="270">
+[𝐰𝐨𝐨𝐝𝐲 𝐛𝐟𝐝𝐢 𝐚𝐥𝐭](https://github.com/woody-bfdi-irl)  ⠀[𝐫𝐨𝐛𝐮𝐫 𝐛𝐥𝐨𝐜𝐤 𝐭𝐚𝐥𝐞𝐬 𝐚𝐥𝐭](https://github.com/robur-bt)
