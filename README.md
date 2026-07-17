@@ -2,8 +2,7 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightblue&left_text=cool+people)
 
-$\texttt{\color{#B8CFCF} BEING FED SMARTY CONTENT BY MOOTS ILY GUYS👅🥺 }$
-
+$\texttt{\color{#B8CFCF} lost my device so im using anoth 1. wnt be on much cus im lwk h8ing mself }$
 <img src="https://files.catbox.moe/z33s2d.png" width="500" height="500">
 
 $\texttt{\color{#7C6DAE} art cr: @hahaguffawchuckleamalus / migor on pinterest }$
