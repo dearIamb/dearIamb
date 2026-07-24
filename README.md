@@ -2,7 +2,7 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightblue&left_text=cool+people)
 
-$\texttt{\color{#B8CFCF} break frum pt. KRUSIE WILL BE CANON ONE DAAAYYYY }$
+$\texttt{\color{#B8CFCF} break frum pt. smaamamaaartypaants🥺🥺 }$
 <img src="https://files.catbox.moe/z33s2d.png" width="500" height="500">
 
 $\texttt{\color{#7C6DAE} art cr: @hahaguffawchuckleamalus / migor on pinterest }$
