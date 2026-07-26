@@ -3,11 +3,12 @@
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightblue&left_text=cool+people)
 
 $\texttt{\color{#B8CFCF} back on the town😂✌ maybe }$
+
 <img src="https://files.catbox.moe/z33s2d.png" width="500" height="500">
 
 $\texttt{\color{#7C6DAE} art cr: @hahaguffawchuckleamalus / migor on pinterest }$
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1999&pause=10&color=B8CFCF&center=true&width=435&lines=𝐰𝐡𝐨𝐬+𝐠𝐨𝐧𝐧𝐚+𝐤𝐢𝐬𝐬;𝐭𝐡𝐞+𝐛𝐫𝐨𝐰𝐧+𝐡𝐚𝐢𝐫𝐞𝐝+𝐠𝐢𝐫𝐥𝐬?;𝐰𝐡𝐨𝐬+𝐠𝐨𝐧𝐧𝐚;𝐰𝐢𝐩𝐞+𝐚𝐰𝐚𝐲+𝐭𝐡𝐞𝐢𝐫+𝐭𝐞𝐚𝐫𝐬?;𝐚𝐧𝐝+𝐰𝐡𝐚𝐭+𝐚𝐛𝐨𝐮𝐭+𝐭𝐡𝐞;𝐛𝐥𝐚𝐜𝐤+𝐡𝐚𝐢𝐫𝐞𝐝+𝐠𝐢𝐫𝐥𝐬?;𝐰𝐡𝐨𝐬+𝐠𝐨𝐧𝐧𝐚+𝐰𝐡𝐢𝐬𝐩𝐞𝐫;𝐟𝐢𝐥𝐭𝐡𝐲+𝐭𝐡𝐢𝐧𝐠𝐬+𝐢𝐧𝐭𝐨+𝐭𝐡𝐞𝐢𝐫+𝐞𝐚𝐫𝐬?)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1999&pause=10&color=B8CFCF&center=true&width=435&lines=𝐥𝐢𝐭𝐭𝐥𝐞+𝐚𝐧𝐝𝐲,;𝐬𝐨𝐟𝐭+𝐢𝐧+𝐲𝐨𝐮𝐫+𝐧𝐞𝐰𝐛𝐨𝐫𝐧+𝐬𝐤𝐢𝐧;𝐨𝐧𝐥𝐲+𝐨𝐧𝐞,;𝐥𝐢𝐭𝐭𝐥𝐞+𝐚𝐧𝐝𝐲;𝐰𝐢𝐥𝐥+𝐲𝐨𝐮+𝐫𝐞𝐭𝐮𝐫𝐧+𝐚𝐠𝐚𝐢𝐧+?;𝐢+𝐛𝐞𝐥𝐢𝐞𝐯𝐞+𝐰𝐞+𝐜𝐚𝐧+𝐫𝐞𝐧𝐞𝐰;𝐚𝐧𝐝+𝐲𝐨𝐮+𝐜𝐚𝐧+𝐛𝐞;𝐦𝐲+𝐛𝐫𝐨𝐭𝐡𝐞𝐫;𝐨𝐧𝐜𝐞+𝐚𝐠𝐚𝐢𝐧;𝐟𝐚𝐥𝐥+𝐚𝐬𝐥𝐞𝐞𝐩;𝐨𝐮𝐫+𝐛𝐚𝐜𝐤𝐬+𝐚𝐠𝐚𝐢𝐧𝐬𝐭+𝐞𝐚𝐜𝐡𝐨𝐭𝐡𝐞𝐫)](https://git.io/typing-svg)
 
 # $\texttt{\color{#B8CFCF} ·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙ }$
 
