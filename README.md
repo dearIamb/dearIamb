@@ -2,7 +2,7 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=pink&left_text=(˶˃ᆺ˂˶))
 
-$\texttt{\color{#FFE7E0} redoing }$
+$\texttt{\color{#FFE7E0} ignore the ass rdme. making fluffle.cc!!! }$
 
 <img src="https://files.catbox.moe/xfibtg.png" width="500" height="500">
 
