@@ -11,7 +11,7 @@ $\texttt{\color{#FFE7E0} ignore the ass rdme. nvm chrome pmo rn }$
 
 <img src="https://files.catbox.moe/230wlf.png" width="800" height="250">
 
-[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/)⠀ ⠀ ⠀ [𝒃𝒍𝒖𝒆𝒔𝒌𝒚](https://bsky.app/profile/kinsiebrah.bsky.social)⠀ ⠀ ⠀ ⠀[𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/wooody)
+[𝒂𝒕𝒂𝒃𝒐𝒐𝒌](https://iknowuraddress.atabook.org/)⠀ ⠀ ⠀ [𝒃𝒍𝒖𝒆𝒔𝒌𝒚](https://bsky.app/profile/kinsiebrah.bsky.social)⠀ ⠀ ⠀ ⠀[𝒓𝒆𝒏𝒕𝒓𝒚](https://rentry.co/wooody) [𝒇𝒍𝒖𝒇𝒇𝒍𝒆.𝒄𝒄 (𝒘𝒊𝒑, 𝒅𝒆𝒆𝒓 + 𝒘𝒐𝒐𝒅𝒚 𝒕𝒉𝒆𝒎𝒆𝒅)](https://fluffle.cc/dearwoody)
 
 $\texttt{\color{#FFC0C6} ִֶָ. ..𓂃 ࣪ ִֶָ ʚଓ་༘࿐ }$
 
