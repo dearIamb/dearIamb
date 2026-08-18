@@ -2,7 +2,7 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightgray&left_text=(˶˃ᆺ˂˶))
 
-$\texttt{\color{#D3DBDD} ignore the ass rdme. lwk me nd wife vv }$
+$\texttt{\color{#D3DBDD} ignore the ass rdme. not in a good mental state atm }$
 
 <img src="https://files.catbox.moe/cvnd46.png" width="550" height="300">
 
