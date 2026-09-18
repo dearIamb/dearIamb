@@ -2,7 +2,7 @@
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=silver-locket.stars&left_color=black&right_color=lightgray&left_text=(˶˃ᆺ˂˶))
 
-$\texttt{\color{#D3DBDD} ignore the ass rdme. hiii frieeendss pls int with me }$
+$\texttt{\color{#D3DBDD} ignore the ass rdme. im losing people uh. }$
 
 <img src="https://files.catbox.moe/cvnd46.png" width="550" height="300">
 
